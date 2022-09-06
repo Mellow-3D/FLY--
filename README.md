@@ -1,4 +1,4 @@
-# FLY--
+# FLY-π
 FLY-π information
 
 The board can be purchased from here https://www.aliexpress.com/item/1005004359533685.html
